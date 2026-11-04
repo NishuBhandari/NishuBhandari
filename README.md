@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @NishuBhandari
 ## 💫 About Me:
+- 👋 Hi, I’m @NishuBhandari
 - 👀 I’m interested in ...
 
 I'm a Data ..... 👨‍💻   
