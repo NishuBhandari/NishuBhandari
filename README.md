@@ -3,7 +3,6 @@
 - 👀 I’m interested in ...
 
 I'm a Data ..... 👨‍💻   
-Digital Marketing 📈  
 
 ---
 
